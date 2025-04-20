@@ -6,4 +6,5 @@
 
 сайт: https://github.com/LostFeniks
 мой ТГ: @Toshik_B
+![alt text](photo_2025-04-20_21-30-06.jpg)
   
